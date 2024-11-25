@@ -28,4 +28,4 @@ IV.Что сделать не вышло:
 
 Ссылка на демонстрацию работы сервиса: https://drive.google.com/file/d/17ifTmomEfPUzsfpfjkEz-1yqKaH6H3RC/view?usp=sharing
 
-P.s. предполагаю, что на фото - кот Сабрины
+P.s. предполагаю, что на фото - кот Кантонистовой Е.О.
